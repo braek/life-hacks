@@ -1,6 +1,10 @@
 # Keto Cheat Sheet
 
-## Description
+## Beschrijving
+
+Ketogeen dieet = een techniek om snel gewicht te verliezen, **zonder intensief sporten** en **zonder verhongeren.**
+
+Resultaat = gezakt van **120,7kg** naar **104,3kg** in de periode van **01/05/2023** tot **13/08/2023** (15 weken). Ongeveer **1,1kg per week** verloren.
 
 ## Sauzen
 
