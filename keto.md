@@ -22,8 +22,8 @@ OK:
 
 Volledig uit den boze, maar er bestaan wel vervangers:
 
-* **noedels op basis van konjak (plant):** verkrijgbaar in Action of gespecialiseerde winkels;
-* **rijst op basis van konjak (plant):** verkrijgbaar in Action of gespecialiseerde winkels;
+* **noedels o.b.v. konjak (plant):** verkrijgbaar in Action of gespecialiseerde winkels;
+* **rijst o.b.v. konjak (plant):** verkrijgbaar in Action of gespecialiseerde winkels;
 * **AH Courgette Spaghetti:** https://www.ah.be/producten/product/wi379923/ah-courgette-spaghetti
 * **AH Tri Colore Groente Spaghetti:** https://www.ah.nl/producten/product/wi497412/ah-tri-colore-groente-spaghetti
 * **AH Bloemkoolrijst:** https://www.ah.be/producten/product/wi379922/ah-bloemkoolrijst
