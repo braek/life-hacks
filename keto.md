@@ -145,7 +145,7 @@ Ochtend, middag, namiddag en avond: 2 tot 4 keer per dag (gevoelsmatig). Ook goe
 * **RainPharma Milk Chocolate:** https://www.rainpharma.com/en/collections/shakes/products/milk-chocolate
 * **AH Ongezoete Amandelmelk:** https://www.ah.be/producten/product/wi383520/ah-amandeldrink-ongezoet
 
-Er bestaan ook andere merken van allebei, maar niet getest. RainPharma is wel vrij duur: best 2 potten tegelijk bestellen om verzendkosten te voorkomen.
+Er bestaan ook andere merken van allebei, maar niet getest. RainPharma is wel vrij duur: best 2 potten tegelijk bestellen om verzendkosten te voorkomen. Ze bieden ook een **proefbox** aan met verschillende smaken (staat soms in promotie), maar de **milk chocolate** is de enige smaak die echt lekker is (precies gewone chocomelk).
 
 ## Sport
 
