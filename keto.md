@@ -83,7 +83,8 @@ OK:
 * onbewerkt kippenvlees;
 * worsten (chipolata);
 * salami;
-* ontbijtspek;
+* chorizo;
+* (ontbijt)spek;
 * spare ribs (ook met marinade);
 * steak;
 * gefrituurde saté is nog okayish.
