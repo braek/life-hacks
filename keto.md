@@ -11,7 +11,12 @@
 
 Over het algemeen allemaal slecht, wegens fructose (suiker).
 
-OK: frambozen, blauwe bessen, advocado (goeie vetten), watermeloen.
+OK:
+
+* frambozen;
+* blauwe bessen;
+* advocado (goeie vetten);
+* watermeloen.
 
 ## Pasta
 
