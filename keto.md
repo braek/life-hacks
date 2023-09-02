@@ -143,7 +143,7 @@ Ochtend, middag, namiddag en avond: 2 tot 4 keer per dag (gevoelsmatig). Ook goe
 
 ### Maand 1 en 2
 
-Fietstochtjes met e-bike van **20km** tot en met **60km** (opbouwen). Intensiteit opvoeren in deze fase heeft geen zin, omdat het lichaam ook moet aanpassen aan de ketose.
+Fietstochtjes met e-bike van **20km** tot en met **60km** (low-barrier sporten en wat conditie opbouwen). Intensiteit opvoeren in deze fase heeft geen zin, omdat het lichaam ook moet aanpassen aan de ketose.
 
 ### Vanaf maand 3
 
