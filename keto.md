@@ -30,10 +30,10 @@ Regel: alle groenten die in de grond groeien, zijn slecht qua koolhydraten.
 
 OK:
 
-* spinazie;
 * champignons;
 * pijpajuin;
 * salade;
+* spinazie;
 * wokgroenten;
 * kerstomaten;
 * brocoli;
@@ -59,7 +59,8 @@ OK:
 
 * onbewerkt kippenvlees;
 * spare ribs (zelfs met marinade);
-* steak.
+* steak;
+* gefrituurde saté is nog okayish.
 
 ## Vegetarisch
 
