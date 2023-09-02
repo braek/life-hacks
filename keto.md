@@ -20,7 +20,7 @@ OK:
 
 ## Pasta
 
-Volledig uit den boze. Er bestaan wel vervangers:
+Volledig uit den boze, maar er bestaan wel vervangers:
 
 * **noedels op basis van konjak (plant):** verkrijgbaar in Action of gespecialiseerde winkels;
 * **rijst op basis van konjak (plant):** verkrijgbaar in Action of gespecialiseerde winkels;
