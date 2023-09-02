@@ -111,6 +111,10 @@ Idealiter **alleen water** drinken en voor de rest:
 * **koffie:** idealiter decaffeine, niet omwille van koolhydraten, maar omwille van het effect van caffeine op de stofwisseling (vertraging);
 * **bier:** volledig uit den boze, veel koolhydraten en alcohol zorgt voor een vertraagde stofwisseling.
 
+## Keto Sticks
+
+Verkrijgbaar bij de apotheek zonder voorschrift. Kan gebruikt worden om te testen of je in **ketose** bent (= omkering metabool proces).
+
 ## Proteine Shakes
 
 ### Doel
