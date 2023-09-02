@@ -8,7 +8,13 @@ Resultaat = gezakt van **120,7kg** naar **104,3kg** in de periode van **01/05/20
 
 ## Brood
 
-Mag niet. Alles gebaseerd op granen is slecht, dus ook ontbijtgranen. 
+Mag niet: alles gebaseerd op granen is slecht, dus ook ontbijtgranen.
+
+## Desserts
+
+Zoetigheid in het algemeen mag gewoon niet. **IJsroosje** verkoopt wel "suikervrij vanille ijs" (lekker), maar dat merk vind je lang niet in elke supermarkt.
+
+Frozen Yoghurt (stevia) kan in principe ook wel (Moochie, Hasselt).
 
 ## Sauzen
 
