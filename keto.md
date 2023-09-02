@@ -151,4 +151,4 @@ Ook gestart met lopen (intervals) en zwemmen. Nog altijd lage intensiteit en goe
 
 ### Na ketose
 
-Intensiteit kan opgevoerd worden. Koolhydraten zijn nodig voor intensief sporten.
+Intensiteit kan opgevoerd worden. Koolhydraten zijn nodig voor intensief sporten. Proteine shakes blijven zinvol als snack na het sporten.
