@@ -139,6 +139,8 @@ Ochtend, middag, namiddag en avond: 2 tot 4 keer per dag (gevoelsmatig). Ook goe
 * **RainPharma Milk Chocolate:** https://www.rainpharma.com/en/collections/shakes/products/milk-chocolate
 * **AH Ongezoete Amandelmelk:** https://www.ah.be/producten/product/wi383520/ah-amandeldrink-ongezoet
 
+Er bestaan ook andere merken van allebei, maar niet getest. RainPharma is wel vrij duur: best 2 potten tegelijk bestellen om verzendkosten te voorkomen.
+
 ## Sport
 
 ### Maand 1 en 2
@@ -151,4 +153,4 @@ Ook gestart met lopen (intervals) en zwemmen. Nog altijd lage intensiteit en goe
 
 ### Na ketose
 
-Intensiteit kan opgevoerd worden. Koolhydraten zijn nodig voor intensief sporten. **Proteine shakes** blijven zinvol als snack na het sporten.
+Intensiteit kan opgevoerd worden. Koolhydraten zijn nodig voor intensief sporten. **Proteine shakes** blijven zinvolle snacks voor na het sporten.
