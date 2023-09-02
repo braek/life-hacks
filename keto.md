@@ -6,6 +6,10 @@ Ketogeen dieet = een techniek om snel gewicht te verliezen, **zonder intensief s
 
 Resultaat = gezakt van **120,7kg** naar **104,3kg** in de periode van **01/05/2023** tot **13/08/2023** (15 weken). Ongeveer **1,1kg per week** verloren.
 
+## Brood
+
+Mag niet. Alles gebaseerd op granen is slecht, dus ook ontbijtgranen. 
+
 ## Sauzen
 
 * OK: mayonaise en mosterd;
@@ -55,7 +59,7 @@ OK:
 * spinazie;
 * wokgroenten;
 * kerstomaten;
-* brocoli;
+* broccoli;
 * bloemkool.
 
 Niet OK:
@@ -93,7 +97,7 @@ Vleesvervangers, zoals tofu en vegetarische hamburgers, zijn meestal low carb (n
 Over het algemeen allemaal OK:
 
 * **(roze) zalm:** 1 van de beste dingen voor het dieet, wegens goeie soort (natuurlijke) vetten;
-* **scampi's;**
+* **scampi;**
 * **witte vis;**
 * **mosselen:** eigenlijk hoog in koolhydraten, maar is een andere soort koolhydraten en daardoor nog okayish.
 
