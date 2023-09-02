@@ -118,6 +118,7 @@ Niet OK:
 Idealiter **alleen water** drinken en voor de rest:
 
 * **frisdrank:** de "zero" varianten zijn low carb en kunnen (met mate);
+* **AH Crystal Clear:** low carb en dus OK (= water met een smaakje);
 * **(droge) witte wijn:** ook toegelaten met mate;
 * **koffie:** idealiter decaffeine, niet omwille van koolhydraten, maar omwille van het effect van caffeine op de stofwisseling (vertraging);
 * **bier:** volledig uit den boze, veel koolhydraten en alcohol zorgt voor een vertraagde stofwisseling.
