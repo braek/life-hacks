@@ -2,7 +2,7 @@
 
 ## Beschrijving
 
-Ketogeen dieet = een techniek om snel gewicht te verliezen, **zonder intensief sporten** en **zonder verhongeren,** met 1 simpele regel: "cut the carbs" (maximum **50g per dag**).
+Ketogeen dieet = een techniek om snel gewicht te verliezen, **zonder intensief sporten** en **zonder verhongeren,** met 1 simpele regel: "cut the carbs" (maximum **20 tot 50g per dag**).
 
 Resultaat = gezakt van **120,7kg** naar **104,3kg** in de periode van **01/05/2023** tot **13/08/2023** (15 weken). Ongeveer **1,1kg per week** verloren.
 
@@ -127,9 +127,23 @@ Te gebruiken i.c.m. **ongezoete amandelmelk** of **water.** Met amandelmelk ga j
 
 ### Wanneer
 
-Ochtend, middag, namiddag en avond: 2 tot 4 keer per dag (gevoelsmatig).
+Ochtend, middag, namiddag en avond: 2 tot 4 keer per dag (gevoelsmatig). Ook goed voor na het sporten.
 
 ### Producten
 
 * **RainPharma Milk Chocolate:** https://www.rainpharma.com/en/collections/shakes/products/milk-chocolate
 * **AH Ongezoete Amandelmelk:** https://www.ah.be/producten/product/wi383520/ah-amandeldrink-ongezoet
+
+## Sporten
+
+## Maand 1 en 2
+
+Fietstochtjes met e-bike van **20km** tot en met **60km** (opbouwen). Intensiteit opvoeren in deze fase heeft geen zin, omdat het lichaam ook moet aanpassen aan dk
+
+## Vanaf maand 3
+
+Lopen (intervals) en zwemmen. Nog altijd lage intensiteit en goed luisteren naar het lichaam. Beter een extra rustdag inlassen als je voelt dat het nodig is.
+
+## Na ketose
+
+Intensiteit kan opgevoerd worden. Koolhydraten zijn nodig voor intensief sporten.
