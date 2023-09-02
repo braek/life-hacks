@@ -138,7 +138,7 @@ Ochtend, middag, namiddag en avond: 2 tot 4 keer per dag (gevoelsmatig). Ook goe
 * **RainPharma Milk Chocolate:** https://www.rainpharma.com/en/collections/shakes/products/milk-chocolate
 * **AH Ongezoete Amandelmelk:** https://www.ah.be/producten/product/wi383520/ah-amandeldrink-ongezoet
 
-## Sporten
+## Sport
 
 ### Maand 1 en 2
 
