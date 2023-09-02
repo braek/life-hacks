@@ -13,6 +13,16 @@ Over het algemeen allemaal slecht, wegens fructose (suiker).
 
 OK: frambozen, blauwe bessen, advocado (goeie vetten), watermeloen.
 
+## Pasta
+
+Volledig uit den boze. Er zijn wel goeie vervangers:
+
+* **noedels op basis van konjak (plant):** verkrijgbaar in Action of gespecialiseerde winkels;
+* **rijst op basis van konjak (plant):** verkrijgbaar in Action of gespecialiseerde winkels;
+* **AH Courgette Spaghetti:** https://www.ah.be/producten/product/wi379923/ah-courgette-spaghetti
+* **AH Tri Colore Groente Spaghetti:** https://www.ah.nl/producten/product/wi497412/ah-tri-colore-groente-spaghetti
+* **AH Bloemkoolrijst:** https://www.ah.be/producten/product/wi379922/ah-bloemkoolrijst
+
 ## Snacks
 
 * frambozen;
@@ -58,7 +68,10 @@ Niet OK:
 OK:
 
 * onbewerkt kippenvlees;
-* spare ribs (zelfs met marinade);
+* worsten (chipolata);
+* salami;
+* ontbijtspek;
+* spare ribs (ook met marinade);
 * steak;
 * gefrituurde saté is nog okayish.
 
