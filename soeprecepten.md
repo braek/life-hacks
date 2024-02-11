@@ -2,40 +2,39 @@
 
 ## Gele Paprikasoep
 
-* 4 kleine sjalotten
-* 4 kleine ajuinen
-* 2 dikke tenen knoflook
-* 5 dikke gele paprika's
-* 1 handje bleekselderij
-* 1 liter water
-* 2 blokjes kipbouillon
-* 1 blokje groentebouillon
-* 75 gram mascarpone
-* potje rode pesto
+* olijfolie;
+* 4 kleine sjalotten;
+* 4 kleine ajuinen;
+* 2 dikke tenen knoflook;
+* 5 dikke gele paprika's;
+* 1 handje bleekselderij;
+* 1 liter water;
+* 2 blokjes kipbouillon;
+* 1 blokje groentebouillon;
+* 75 gram mascarpone;
+* potje rode pesto.
 
-ajuin+sjalot+knoflook => 3 minuten stoven op hoog vuur
+Ajuin, sjalot en knoflook versnipperen en 3 minuten stoven op hoog vuur.
 
-paprika+knolselder erbij => 3 minuten stoven op hoog vuur
+Gele paprika + bleekselderij toevoegen en 3 minuten stoven op hoog vuur.
 
-1 liter water erbij + 2X kip bouillon + 1X groenten bouillon
+Daarna 1 liter water toevoegen met 2 blokjes kipbouillon en 1 blokje groentebouillon.
 
-15 minuten laten koken/pruttelen
+Vanaf dan 15 minuten laten koken/pruttelen.
 
-Toevoegen: 3 koffielepels rode pesto
+Daarna van het vuur halen en 3 koffielepels rode pesto toevoegen.
 
-Daarna soep pureren.
+Soep pureren met een mixer.
 
+75 gram mascarpone in de microgolf zetten: 45 seconden op 600 Watt. Dit om de mascarpone plat te maken. Daarna de mascarpone mengen met enkele eetlepels van de gepureerde soep tot een mengsel zonder klonters.
 
-75 gram mascarpone => 45sec op 600 watt in microgolf on plat te laten worden, daarna mengen met enkele soeplepels gepureerde soep.
-Het totale mengsel toevoegen aan de soep.
+Daarna dit mengsel toevoegen aan de rest van soep en nog eens goed pureren.
 
-Daarna soep verder pureren, om mascarpone goed te mengen met alles.
+Daarna soep terug op laag vuur zetten (niet meer laten koken).
 
-Daarna soep terug op laag vuur zetten.
+* 6 kringen zout toevoegen;
+* 3 kringen peper toevoegen.
 
-6 kringen ZOUT toevoegen
-3 kringen PEPER toevoegen
-
-Goed mengen => klaar
+Nog eens heel goed mengen en dan is de soep klaar.
 
 **Niet te veel mascarpone in deze soep doen: de smaak/textuur wordt dan veel te kazig.**
