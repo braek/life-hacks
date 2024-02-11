@@ -71,3 +71,5 @@ Nog eens heel goed mengen en dan is de soep klaar.
 * voeg het water toe aan de rest en laat ongeveer 10 minuten koken;
 * daarna de soep pureren en de room toevoegen;
 * op smaak brengen met peper en zout.
+
+Tip: in AH kan je een doos champignons kopen van 400 gram (grote witte champignons) en een doos van 250 gram (kleine witte champignons). Dit versnijden om aan 500 gram in totaal te komen. De rest van de kleine champignons apart bakken in de pan met zout, peter en een beetje tijm. Kan dienen als kleine extra dressing voor in de soep.
