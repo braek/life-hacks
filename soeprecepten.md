@@ -77,3 +77,4 @@ Tip: in AH kan je een doos champignons kopen van 400 gram (grote witte champigno
 ## TO-DO list
 
 * https://njam.tv/recepten/champignonroomsoep
+* https://njam.tv/recepten/looksoep-met-spek
