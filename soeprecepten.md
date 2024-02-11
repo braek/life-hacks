@@ -11,6 +11,7 @@
 * 2 blokjes kipbouillon
 * 1 blokje groentebouillon
 * 75 gram mascarpone
+* potje rode pesto
 
 ajuin+sjalot+knoflook => 3 minuten stoven op hoog vuur
 
