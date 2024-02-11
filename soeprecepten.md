@@ -12,7 +12,8 @@
 * 2 blokjes kipbouillon;
 * 1 blokje groentebouillon;
 * 75 gram mascarpone;
-* potje rode pesto.
+* potje rode pesto;
+* peper en zout.
 
 Ajuin, sjalot en knoflook versnipperen en 3 minuten stoven op hoog vuur.
 
@@ -38,3 +39,35 @@ Daarna soep terug op laag vuur zetten (niet meer laten koken).
 Nog eens heel goed mengen en dan is de soep klaar.
 
 **Niet te veel mascarpone in deze soep doen: de smaak/textuur wordt dan veel te kazig.**
+
+## Champignonroomsoep
+
+* 500 gram champignons;
+* 2 middelgrote uien;
+* 2 tenen knoflook;
+* 50 gram boter;
+* 1 koffielepel tijm;
+* 40 gram bloem;
+* 2 tabletten groentebouillon;
+* 1 liter water;
+* 250 ml kookroom;
+* peper en zout.
+
+### Voorbereiding
+
+* uien versnipperen;
+* knoflook versnipperen;
+* champignons snijnen in stukjes;
+* boter afwegen: 10 gram en 40 gram;
+* bloem afwegen: 40 gram.
+
+### Soep maken
+
+* 10 gram boter + ui + knoflook: 2 minuten stoven;
+* champignons toevoegen en koffielepel tijm toevoegen: 2 minuten stoven;
+* voeg de rest van de boter toe (40 gram) en laat smelten tussen de champignons;
+* voeg de 40 gram bloem toe en bak een minuutje mee;
+* los de groentebouillon op in een aparte ketel met 1 liter water;
+* voeg het water toe aan de rest en laat ongeveer 10 minuten koken;
+* daarna de soep pureren en de room toevoegen;
+* op smaak brengen met peper en zout.
