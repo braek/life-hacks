@@ -19,11 +19,11 @@ Knoflook en sjalotten versnipperen.
 
 Broccoli versnipperen in roosjes. De stam van de broccoli mag ook gebruikt worden, maar slechte delen moeten verwijderd worden.
 
-Scheut olijfolie toevoegen in de kookpot. Daarna de knoflook en sjalotten 2 minuten stoven.
+Scheut olijfolie toevoegen in de kookpot. Daarna de knoflook en sjalotten ```2 minuten``` stoven.
 
-Daarna de broccoli toevoegen en ook 2 minuten stoven.
+Daarna de broccoli toevoegen en ook ```2 minuten``` stoven.
 
-Daarna de groentebouillon toevoegen en breng de soep aan de kook. Laat 15 minuten pruttelen op een laag vuur.
+Daarna de groentebouillon toevoegen en breng de soep aan de kook. Laat ```15 minuten``` pruttelen op een laag vuur.
 
 Daarna de soep pureren met een mixer en de kookroom toevoegen.
 
