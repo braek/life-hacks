@@ -10,7 +10,7 @@
 * ```100g``` gerookte spekblokjes;
 * ```1 liter``` water;
 * ```1 blokje``` groentebouillon;
-* ```100ml``` kookroom (20% vet);
+* ```100ml``` kookroom (```20%``` vet);
 * peper en zout.
 
 ## Bereiding
