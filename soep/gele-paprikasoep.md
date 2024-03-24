@@ -7,7 +7,7 @@
 * ```5``` dikke gele paprika's;
 * ```1``` handje bleekselderij;
 * ```1``` liter water;
-* ```2``` blokjes kipbouillon;
+* ```1``` blokje kipbouillon;
 * ```1``` blokje groentebouillon;
 * ```75``` gram mascarpone;
 * potje rode pesto;
