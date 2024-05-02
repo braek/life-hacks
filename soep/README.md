@@ -16,9 +16,14 @@
 * Groenten best bakken/stoven **voordat** er bouillon (water) wordt toegevoegd om te koken. Dit zorgt ervoor dat de groenten meer smaak afgeven.
 * Ketotip: sjalot bevat veel meer koolhydraten dan een gewone ajuin. Voor een ketodieet kan je dus beter de gewone ajuin gebruiken.
 
-## TO-DO list
+## To-dolijst
 
 * https://njam.tv/recepten/looksoep-met-spek
 * https://www.youtube.com/watch?v=txWI9KfqYxA&ab_channel=njam%21
 * https://www.leukerecepten.nl/soep-recepten/?s=&taxonomy%5Bthema%5D%5B%5D=soep-recepten&taxonomy%5Bthema%5D%5B%5D=gezonde-recepten&op=a
 * https://koken.vtm.be/sos-piet/recept/groentesoep
+* https://www.puurgezond.nl/eten/soep/recepten/chinese-tomatensoep
+* https://www.lekkervanbijons.be/recepten/preisoep
+* https://www.puurgezond.nl/eten/soep/recepten/hoe-maak-je-gazpacho
+* https://www.puurgezond.nl/eten/soep/recepten/chinese-tomatensoep
+* https://www.ah.be/allerhande/recepten/preisoep#preisoep-recepten
