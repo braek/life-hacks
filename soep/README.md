@@ -14,6 +14,8 @@
 * Per liter water ```1``` blokje bouillon toevoegen (kip/rund/groente) is een goede maatstaf. Bij sommige soepen worden wel meer blokjes bouillon toegevoegd per liter water, maar dit is eerder uitzonderlijk.
 * Soep aan de kook brengen mag op een hoog vuur. Als de soep eenmaal aan de kook is, moet je het vuur verlagen. Soep moet blijven pruttelen op een laag vuur gedurende pakweg ```15``` minuten.
 * Groenten best bakken/stoven **voordat** er bouillon (water) wordt toegevoegd om te koken. Dit zorgt ervoor dat de groenten meer smaak afgeven.
+* Kookroom pas toevoegen tijdens of na pureren! Kookroom niet mee koken.
+* Kookroom: ```200ml``` per liter bouillon is een goede maatstaf.
 * Ketotip: sjalot bevat veel meer koolhydraten dan een gewone ajuin. Voor een ketodieet kan je dus beter de gewone ajuin gebruiken.
 
 ## To-dolijst
