@@ -165,3 +165,7 @@ Intensiteit kan opgevoerd worden. Koolhydraten zijn nodig voor intensief sporten
 ## Gerechten
 
 TODO: aanvullen
+
+## Resources
+
+* https://www.xandrasketokitchen.nl/wat-eet-je-dan-wel/
