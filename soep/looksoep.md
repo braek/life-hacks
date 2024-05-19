@@ -5,6 +5,7 @@
 * 1 grote ajuin of 2 kleine(re) ajuinen;
 * 4 bollen look;
 * 1 preiwit (gebruik enkel het wit voor deze soep en niet het groen);
+* 1 liter water;
 * peper;
 * zout;
 * olijfolie;
