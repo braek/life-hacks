@@ -65,3 +65,7 @@ De spekreepjes worden voor deze soep niet gebakken, omdat het het geheel anders 
 Op smaak brengen met peper en zout.
 
 Voeg daarna versie peterselie en geblancheerde spekreepjes toe.
+
+## Inspiratie
+
+https://njam.tv/recepten/looksoep-met-spek

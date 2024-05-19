@@ -20,7 +20,6 @@
 
 ## To-dolijst
 
-* https://njam.tv/recepten/looksoep-met-spek
 * https://www.youtube.com/watch?v=txWI9KfqYxA&ab_channel=njam%21
 * https://www.leukerecepten.nl/soep-recepten/?s=&taxonomy%5Bthema%5D%5B%5D=soep-recepten&taxonomy%5Bthema%5D%5B%5D=gezonde-recepten&op=a
 * https://koken.vtm.be/sos-piet/recept/groentesoep
