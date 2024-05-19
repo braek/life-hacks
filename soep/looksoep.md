@@ -58,6 +58,8 @@ Breng aan de kook en laat 2 minuten pruttelen op laag vuur.
 
 Daarna eruit pakken en afspoelen met koud water.
 
+De spekreepjes worden voor deze soep niet gebakken, omdat het het geheel anders te zout zou maken.
+
 ## Final thing
 
 Op smaak brengen met peper en zout.
