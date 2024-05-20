@@ -61,6 +61,8 @@ Daarna eruit pakken en afspoelen met koud water.
 
 De spekreepjes worden voor deze soep niet gebakken, omdat het het geheel anders te zout zou maken.
 
+Blancheren zorgt ervoor dat de zoute smaak uit de spekreepjes gaat.
+
 ## Final thing
 
 Op smaak brengen met peper en zout.
