@@ -8,5 +8,6 @@
 * 1 liter groentebouillon;
 * 2 koffielepels paprikapoeder;
 * 100 ml kookroom (7% vet);
+* bouquet garni (tijm, laurier, peterselie);
 * peper;
 * zout;
