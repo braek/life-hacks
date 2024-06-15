@@ -11,3 +11,4 @@
 * bouquet garni (tijm, laurier, peterselie);
 * peper;
 * zout;
+* olijfolie.
