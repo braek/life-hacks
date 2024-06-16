@@ -15,7 +15,7 @@
 * Soep aan de kook brengen mag op een hoog vuur. Als de soep eenmaal aan de kook is, moet je het vuur verlagen. Soep moet blijven pruttelen op een laag vuur gedurende pakweg ```15 à 20``` minuten. Afhankelijk van de soort groenten (hardheid).
 * Groenten best bakken/stoven **voordat** er bouillon (water) wordt toegevoegd om te koken. Dit zorgt ervoor dat de groenten meer smaak afgeven.
 * Kookroom pas toevoegen tijdens of na pureren! Kookroom niet mee koken.
-* Kookroom: ```200ml``` per liter bouillon is een goede maatstaf.
+* Kookroom: ```100 ml``` per liter bouillon is een goede maatstaf (hoewel dat veel recepten meer aangeven).
 * Ketotip: sjalot bevat veel meer koolhydraten dan een gewone ajuin. Voor een ketodieet kan je dus beter de gewone ajuin gebruiken.
 * Vetarme bouillon blokjes geven minder smaak. Betere de niet-vetarme bouillon blokjes kopen.
 * Kruidentuiltje is kant en klaar te verkrijgen bij [Delhaize](https://www.delhaize.be/nl/shop/Zoute-kruidenierswaren/Kruiden/Specerijen/Volle/Bouquet-garni/p/S2015091400391760000)
