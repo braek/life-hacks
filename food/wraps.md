@@ -18,7 +18,8 @@
 * witte rijst;
 * salade;
 * tomaten in blokjes;
-* gemalen kaas.
+* gemalen kaas;
+* tortilla's.
 
 ## Bron
 
