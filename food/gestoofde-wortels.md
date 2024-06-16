@@ -3,7 +3,7 @@
 ## Ingrediënten
 
 * 2 sjalotten;
-* 2 teentjes knoflook;
+* 1 teentje knoflook;
 * 4 wortels;
 * peper;
 * zout;
