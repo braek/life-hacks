@@ -18,7 +18,7 @@
 * Kookroom: ```100 ml``` per liter bouillon is een goede maatstaf (hoewel dat veel recepten meer aangeven). Kookroom met ```7%``` vetgehalte is voldoende. Kookroom met ```20%``` vetgehalte maakt de soep raar na een nacht in de koelkast.
 * Ketotip: sjalot bevat veel meer koolhydraten dan een gewone ajuin. Voor een ketodieet kan je dus beter de gewone ajuin gebruiken.
 * Vetarme bouillon blokjes geven minder smaak. Betere de niet-vetarme bouillon blokjes kopen.
-* Kruidentuiltje is kant en klaar te verkrijgen bij [Delhaize](https://www.delhaize.be/nl/shop/Zoute-kruidenierswaren/Kruiden/Specerijen/Volle/Bouquet-garni/p/S2015091400391760000)
+* Bouquet garni (kruidentuiltje) is kant en klaar te verkrijgen bij [Delhaize](https://www.delhaize.be/nl/shop/Zoute-kruidenierswaren/Kruiden/Specerijen/Volle/Bouquet-garni/p/S2015091400391760000).
 
 ## To-dolijst
 
