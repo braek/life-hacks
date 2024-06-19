@@ -11,8 +11,11 @@
 * 1 koffielepel paprikapoeder;
 * 1 koffielepel oregano;
 * chilli flakes (optioneel);
-* 2 eetlepels tomatenpuree;
-* 60 ml water;
+* 2 eetlepels tomatenpuree (potje van 70 gram);
+* 60 ml kipbouillon.
+
+## Groenten
+
 * maïs;
 * bonen;
 * witte rijst;
@@ -20,6 +23,13 @@
 * tomaten in blokjes;
 * gemalen kaas;
 * tortilla's.
+
+## Saus
+
+* zure room 150 ml;
+* 1 eetlepel citroensap;
+* 2 tot 3 eetlepels melk;
+* mengen en 1 tot 2 uur laten staan in de frigo.
 
 ## Bron
 
