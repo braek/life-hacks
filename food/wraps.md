@@ -24,12 +24,21 @@
 * gemalen kaas;
 * tortilla's.
 
-## Saus
+## Saus 1
 
 * zure room 150 ml;
 * 1 eetlepel citroensap;
 * 2 tot 3 eetlepels melk;
 * mengen en 1 tot 2 uur laten staan in de frigo.
+
+## Saus 2
+
+* kopje yoghurt;
+* 2 tot 3 eetlepels mayonaise;
+* 1 koffielepel zout;
+* rode chilipoeder 1/2 koffielepel;
+* komijnpoeder 1/2 koffielepel;
+* verse koriander versnipperd.
 
 ## Bron
 
