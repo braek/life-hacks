@@ -29,6 +29,8 @@ Als de kipblokjes mooi bruin geworden zijn, mag je in het midden van de een open
 
 Het geheel bakken. Als de ajuin goed gebakken is, mag het geheel geblust worden met de saus.
 
+Verse peterselie nog versnipperen en toevoegen als garnering.
+
 Daarna een deksel op de pan doen en het geheel nog 5 minuten laten sudderen op een laag vuur.
 
 ## Bereiding Saus
