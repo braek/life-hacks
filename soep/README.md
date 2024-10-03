@@ -19,6 +19,7 @@
 * Ketotip: sjalot bevat veel meer koolhydraten dan een gewone ajuin. Voor een ketodieet kan je dus beter de gewone ajuin gebruiken.
 * Vetarme bouillon blokjes geven minder smaak. Betere de niet-vetarme bouillon blokjes kopen.
 * Bouquet garni (kruidentuiltje) is kant en klaar te verkrijgen bij [Delhaize](https://www.delhaize.be/nl/shop/Zoute-kruidenierswaren/Kruiden/Specerijen/Volle/Bouquet-garni/p/S2015091400391760000).
+* Velouté: 1 eierdooier per ```100ml``` kookroom. Eerst de soep zeven. Daarna pas het mengsel van de room en eierdooier toevoegen aan de gezeefde soep.
 
 ## To-dolijst
 
