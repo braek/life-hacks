@@ -16,7 +16,7 @@
 
 Teentje knoflook en avocado's in de blender of mixen met staafmixer.
 
-2 eetlepels limoensap en 2 eetlepels olijfolie toevoegen. Alles goed mengen en op smaak brengen met peper en zout.
+2 eetlepels limoensap en 1 eetlepel olijfolie toevoegen. Alles goed mengen en op smaak brengen met peper en zout.
 
 Het limoensap zorgt ervoor dat de guacamole mooi groen blijft en voegt een frisse smaak toe.
 
