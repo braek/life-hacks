@@ -27,7 +27,7 @@
 * 4 gele ajuinen;
 * 2 teentjes knoflook;
 * 1 preiwit;
-* 1 wortel;
+* 2 wortels;
 * 1 kg tomaten uit blik (AH merk 400 gram - netto 250 gram);
 * 1,5 liter groentebouillon;
 * 2 blokjes groentebouillon;
