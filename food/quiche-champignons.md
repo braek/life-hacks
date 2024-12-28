@@ -2,17 +2,20 @@
 
 ## Ingrediënten
 
-* 1 gele ajuin;
+* 1 rode ajuin;
+* 4 stengels pijpajuin;
 * 1 gele paprika;
 * 1 rode paprika;
+* 1 preiwit;
 * 400 gram witte champignons;
 * 250 gram gerookte spekreepjes;
-* 6 eieren;
+* 5 eieren;
 * olijfolie;
-* 200 ml kookroom 7% vet;
+* 250 ml kookroom 7% vet;
 * peper;
+* nootmuskaat;
 * zout;
-* 200 gram geraspte kaas;
+* 200 gram geraspte gruyèrekaas;
 * paneermeel;
 * vel deeg.
 
