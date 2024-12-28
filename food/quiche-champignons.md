@@ -17,7 +17,8 @@
 * zout;
 * 200 gram geraspte gruyèrekaas;
 * paneermeel;
-* vel deeg.
+* vel deeg;
+* peterselie (vers of droog) als garnituur.
 
 ## Resources
 
