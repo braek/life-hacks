@@ -1,8 +1,6 @@
 # Tomatensoep
 
-## Recept 1
-
-### Ingrediënten
+## Ingrediënten
 
 * 2 grote ajuinen;
 * 2 teentjes knoflook;
@@ -14,26 +12,5 @@
 * 100 ml kookroom (7% vet);
 * 1 koffielepel paprikapoeder (mild);
 * peper;
-* zout.
-
-### Garnituur
-
-* fijne peterselie (vers of gedroogd).
-
-## Recept 2
-
-# Ingrediënten
-
-* 4 gele ajuinen;
-* 2 teentjes knoflook;
-* 1 preiwit;
-* 2 wortels;
-* 1 kg tomaten uit blik (AH merk 400 gram - netto 250 gram);
-* 1,5 liter groentebouillon;
-* 2 blokjes groentebouillon;
-* 70 gram tomatenpuree;
-* 4 koffielepels basilicum;
-* bouquet garni OF laurierblaadjes;
-* optioneel: oregano;
-* peper;
-* zout.
+* zout;
+* fijne peterselie als garnituur (vers of gedroogd).
