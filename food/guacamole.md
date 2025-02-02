@@ -5,7 +5,7 @@
 * 2 avocado's;
 * halve rode ui;
 * olijfolie;
-* limoensap;
+* limoensap (of citroensap);
 * halve tomaat;
 * peper;
 * zout;
