@@ -21,6 +21,9 @@
 * optioneel: peterselie: droog of vers;
 * optioneel: 200 à 250 gram gerookte spekreepjes (Herta).
 
+## Extra tips
+
+[Leuke Recepten NL: 10 tips voor de perfecte quiche](https://www.leukerecepten.nl/10-tips-voor-de-perfecte-quiche/)
 
 ## Bereiding
 
