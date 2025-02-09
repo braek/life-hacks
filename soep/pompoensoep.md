@@ -12,4 +12,5 @@
 * peper;
 * zout;
 * nootmuskaat;
+* olijfolie;
 * garnituur: pompoenpitten.
