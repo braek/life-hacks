@@ -32,3 +32,5 @@ Dan de groentebouillon erbij doen en 30 minuten laten pruttelen op laag vuur.
 Pureren, afkruiden, room erbij en zeven.
 
 Klaar!
+
+**Sandy-score: 8,5/10**
