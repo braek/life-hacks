@@ -4,11 +4,11 @@
 
 * 4 ajuinen;
 * 4 teentjes knoflook;
-* 1 wortel;
+* 2 wortels;
 * 1 blik tomaten 250 gram;
 * 1 kg pompoen (butternut is de beste soort);
-* 2 liter groentebouillon (3 blokjes in 2 liter water);
-* 250 ml kookroom (7% vet);
+* 2 liter groentebouillon;
+* 250 ml kookroom (20% vet);
 * peper;
 * zout;
 * nootmuskaat;
@@ -32,5 +32,7 @@ Dan de groentebouillon erbij doen en 30 minuten laten pruttelen op laag vuur.
 Pureren, afkruiden, room erbij en zeven.
 
 Klaar!
+
+Room met minder vetpercentage kan ook bij deze soep, maar is minder lekker.
 
 **Sandy-score: 8,5/10**
