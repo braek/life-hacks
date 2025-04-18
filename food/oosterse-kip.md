@@ -26,6 +26,7 @@ Alle ingrediënten mengen en daarna minstens 1 uur laten marineren in de koelkas
 * 2 eetlepels sojasaus;
 * 2 eetlepels honing;
 * 2 eetlepels oestersaus;
+* 2 eetlepels sesamolie;
 * 1 eetlepel bloem;
 * 1 koffielepel chillivlokken;
 * 200 ml water.
