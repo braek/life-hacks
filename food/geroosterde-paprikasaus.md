@@ -5,9 +5,12 @@
 * 5 rode paprika's;
 * 1 ajuin;
 * 4 teentjes knoflook;
+* 125 gram witte champignons;
+* 125 gram spinazie;
 * 200ml kipbouillon;
 * 100ml kookroom;
 * peper;
+* olijfolie;
 * zout.
 
 ## Bereiding
