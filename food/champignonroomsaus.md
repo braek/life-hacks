@@ -9,8 +9,8 @@
 * 2 teentjes knoflook;
 * 200 ml kookroom;
 * 200 ml kipbouillon;
-* 1 eetlepel bloem;
-* peterselie of bieslook.
+* 1 of 2 eetlepels bloem (afhankelijk van de gewenste dikte);
+* 1 eetlepel peterselie of bieslook.
 
 ## Bereiding
 
