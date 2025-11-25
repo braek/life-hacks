@@ -30,7 +30,7 @@ De 5 eieren klutsen in een kom en opkloppen. Daarna de room toevoegen en goed me
 
 Goed mengen en proeven: de vulling mag een beetje fel smaken, want dit zwakt nog af als de rest wordt toegevoegd.
 
-Daarna de gestoofde groenten en spekreepjes toevoegen.
+Daarna de gestoofde groenten, gebakken spekreepjes en geraspte gruyère kaas toevoegen.
 
 De bakvorm insmeren met een beetje olijfolie. Daarna het vel deeg goed leggen in de bakvorm en de kanten omplooien.
 
