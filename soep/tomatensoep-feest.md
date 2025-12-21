@@ -27,7 +27,7 @@ Ajuin enkele minuten stoven.
 Daarna de prei toevoegen en enkele minuten verder stoven.
 Daarna de wortels toevoegen en enkele minuten verder stoven.
 
-Nu mag de oregano en basilicum worden toegevoegd en enkele minuten mee gestoofd worden.
+Nu mag de oregano en basilicum worden toegevoegd en ook de teentjes knoflook en enkele minuten mee gestoofd worden.
 Daarna de tomatenpuree toevoegen en ook goed mee roerbakken.
 
 Vanaf dan alle blikken tomaat opendoen en toevoegen, 1 kg in totaal.
