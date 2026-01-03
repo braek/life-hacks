@@ -22,3 +22,6 @@ Verhouding cocktailsaus/yoghurt is 2/1. Per 100ml saus dan 1 eetlepel citroensap
 Alles goed mengen en klaar.
 
 Verhouding mayonaise/yoghurt is 1/1. Per 100ml saus dan 1 eetlepel citroensap toevoegen.
+
+Let op met deze saus: hoe langer deze in de koelkast blijft staan, hoe meer de look begint door te smaken.
+Als alternatief kan je ook een geroosterde bol knoflook gebruiken of geblancheerde teentjes knoflook.
