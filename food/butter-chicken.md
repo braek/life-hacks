@@ -20,7 +20,8 @@
 * kruidnagel;
 * basmati rijst;
 * geroosterde ajuintjes;
-* pijpajuin blaadjes in ringen.
+* pijpajuin blaadjes in ringen;
+* 100 gram boter.
 
 ## Bereiding
 
