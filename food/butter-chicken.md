@@ -3,13 +3,13 @@
 ## Ingrediënten
 
 * 600 gram kipfilet;
-* 1 koffielepel zout;
-* 1 koffielepel zwarte peper;
-* 1 koffielepel cayennepeper;
-* 1 koffielepel komijn;
-* 1 koffielepel kurkuma;
-* 1 koffielepel garam masala;
-* 1 eetlepel olijfolie;
+* zout;
+* zwarte peper;
+* cayennepeper;
+* komijn;
+* kurkuma;
+* garam masala;
+* olijfolie (voor warm gebruik);
 * 100 ml Griekse yoghurt;
 * 40 gram verse gember;
 * 4 teentjes knoflook;
