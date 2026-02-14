@@ -44,3 +44,5 @@ Daarna de kip apart bakken.
 ### Saus
 
 Rode ajuinen, gember en knoflook versnipperen. Dat mag redelijk grof zijn.
+
+Koriander toevoegen (mag ook verse zijn).
