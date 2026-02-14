@@ -48,3 +48,13 @@ Daarna de kip apart bakken.
 Rode ajuinen, gember en knoflook versnipperen. Dat mag redelijk grof zijn.
 
 Koriander toevoegen (mag ook verse zijn).
+
+Kruiden toevoegen:
+
+* cayennepeper;
+* kurkuma;
+* kruidnagel (klein beetje);
+* garam masala;
+* 100 gram boter in blokjes toevoegen.
+
+Daarna 200 ml room toevoegen en 500 ml passata.
