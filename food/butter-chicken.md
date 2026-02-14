@@ -21,6 +21,7 @@
 * basmati rijst;
 * geroosterde ajuintjes;
 * pijpajuin blaadjes in ringen;
+* 1x chilipeper;
 * 100 gram boter.
 
 ## Bereiding
