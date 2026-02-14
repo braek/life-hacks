@@ -37,3 +37,7 @@ Kip in blokjes snijden en een kruidenmix maken van:
 Alles samenvoegen en enkele uren in de koelkast zetten (marineren).
 
 Daarna de kip apart bakken.
+
+### Saus
+
+Rode ajuinen, gember en knoflook versnipperen. Dat mag redelijk grof zijn.
