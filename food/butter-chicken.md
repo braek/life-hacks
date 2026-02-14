@@ -16,6 +16,7 @@
 * 2 rode ajuinen;
 * 200 ml kookroom;
 * 500 ml tomatenpassata;
+* koriander;
 * basmati rijst.
 
 ## Bereiding
