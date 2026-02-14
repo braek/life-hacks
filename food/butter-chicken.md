@@ -17,6 +17,7 @@
 * 200 ml kookroom;
 * 500 ml tomatenpassata;
 * koriander;
+* kruidnagel;
 * basmati rijst.
 
 ## Bereiding
