@@ -18,7 +18,9 @@
 * 500 ml tomatenpassata;
 * koriander;
 * kruidnagel;
-* basmati rijst.
+* basmati rijst;
+* geroosterde ajuintjes;
+* pijpajuin blaadjes in ringen.
 
 ## Bereiding
 
