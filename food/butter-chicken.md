@@ -58,3 +58,7 @@ Kruiden toevoegen:
 * 100 gram boter in blokjes toevoegen.
 
 Daarna 200 ml room toevoegen en 500 ml passata.
+
+Even laten koken, daarna mixen met een staafmixer.
+
+Daarna een zeef pakken en de saus toevoegen aan de kip en nog enkele minuten laten garen.
