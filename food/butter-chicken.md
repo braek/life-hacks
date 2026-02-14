@@ -10,7 +10,13 @@
 * 1 koffielepel kurkuma;
 * 1 koffielepel garam masala;
 * 1 eetlepel olijfolie;
-* 100 ml Griekse yoghurt.
+* 100 ml Griekse yoghurt;
+* 40 gram verse gember;
+* 4 teentjes knoflook;
+* 2 rode ajuinen;
+* 200 ml kookroom;
+* 500 ml tomatenpassata;
+* basmati rijst.
 
 ## Bereiding
 
