@@ -2,14 +2,14 @@
 
 ## Ingrediënten
 
-* 4 gele ajuinen;
+* 4 gele ajuinen OF 2 gele ajuinen en 2 rode ajuinen;
 * 4 teentjes knoflook;
 * 1 preiwit;
 * 2 wortels;
 * 1 kg (netto) tomaten uit blik (AH merk 400 gram - netto 250 gram, dus 4 blikken nodig);
 * 2 liter groentebouillon (2 blokjes groentebouillon);
 * 70 gram tomatenpuree (1 potje);
-* bouquet garni en/of laurierblaadjes;
+* bouquet garni;
 * 1 eetlepel oregano;
 * 1 eetlepel basilicum;
 * peper;
