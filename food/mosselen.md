@@ -18,6 +18,8 @@ Peterselie toevoegen.
 
 Eventueel op smaak brengen met beetje zwarte peper en zout.
 
+Mag 1 à 2 uur de frigo in voor consumptie om de smaken te doen "werken".
+
 ## Mosselen lookroom
 
 Voor een hoeveelheid van 2kg mosselen in 1 kastrol:
@@ -29,12 +31,12 @@ Voor een hoeveelheid van 2kg mosselen in 1 kastrol:
 * zwarte peper;
 * zout.
 
-Sjalotten en peterselie fijn hakken op snijplank.
+Sjalotten en peterselie heel fijn hakken op snijplank.
 
 Sjalotten lichtjes aanstoven in een kastrol met een beetje lookboter.
 Daarna geleidelijk aan meer en meer lookboter toevoegen en de sjalotten verder aanstoven.
 
-Daarna 500ml kookroom toevoegen en alles goed mengen. Daarna de gehakte peterselie toevoegen.
+Daarna 500ml kookroom toevoegen en alles goed mengen. Daarna ook de gehakte peterselie toevoegen.
 
 Het geheel een beetje laten inkoken (reduceert door verdamping). Op smaak brengen met zout en zwarte peper.
 
