@@ -5,7 +5,7 @@
 * 200 gram mayonaise (zonder citroen);
 * 200 gram Griekse yoghurt natuur (10% vet);
 * 100 gram mosterd;
-* citroensap van een halve citroen (ongeveer 2 eetlepels);
+* citroensap van een halve citroen (ongeveer 2 à 2,5 eetlepels);
 * 40 gram verse peterselie;
 * zout;
 * zwarte peper.
