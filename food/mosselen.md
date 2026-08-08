@@ -5,7 +5,7 @@
 * 200 gram mayonaise (zonder citroen);
 * 200 gram Griekse yoghurt natuur (10% vet);
 * 100 gram mosterd;
-* citroensap van een halve citroen;
+* citroensap van een halve citroen (ongeveer 2 eetlepels);
 * 40 gram verse peterselie;
 * zout;
 * zwarte peper.
@@ -38,4 +38,4 @@ Daarna 500ml kookroom toevoegen en alles goed mengen. Daarna de gehakte petersel
 
 Het geheel een beetje laten inkoken (reduceert door verdamping). Op smaak brengen met zout en zwarte peper.
 
-Daarna kan dit gebruikt worden als basis om gewoon 2kg mosselen in te koken.
+Daarna kan dit gebruikt worden als basis om gewoon 2kg mosselen in te koken. Voor 1kg mosselen al het bovenstaande halveren in hoeveelheid.
